@@ -1,2 +1,2 @@
 # Astronomy
-For small projects Astronomy related
+For small projects Astronomy related ☄☄
